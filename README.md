@@ -1,1 +1,0 @@
-# santoshpothula.github.io
